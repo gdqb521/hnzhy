@@ -1,4 +1,8 @@
+##党员必修
+
 | [（一）十九大党章修改的意义和主要内容](http://djpt.hactcm.edu.cn/WebCourse/SaveView?CourseId=35280052-2d55-4814-8400-b6409282a33d&CourseTitle=（一）十九大党章修改的意义和主要内容&VideoLength=1021&CurrentTime=1020) |
+
+
 | ------------------------------------------------------------ |
 | [（二）十九大党章修改的意义和主要内容](http://djpt.hactcm.edu.cn/WebCourse/SaveView?CourseId=dd60f583-b116-45b4-9542-4f8d475085e7&CourseTitle=（二）十九大党章修改的意义和主要内容&VideoLength=1021&CurrentTime=1013) |
 | [（三）十九大党章修改的意义和主要内容](http://djpt.hactcm.edu.cn/WebCourse/SaveView?CourseId=d6fe160c-71da-4420-8876-45276175e225&CourseTitle=（三）十九大党章修改的意义和主要内容&VideoLength=1022&CurrentTime=1020) |
